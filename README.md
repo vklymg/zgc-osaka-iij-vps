@@ -1,0 +1,1 @@
+# zgc-osaka-iij-vps
